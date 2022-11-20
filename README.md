@@ -1,3 +1,3 @@
 # Intro
 
-Just getting started
+Just getting started!
